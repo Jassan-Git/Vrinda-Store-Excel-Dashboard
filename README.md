@@ -23,3 +23,5 @@ Expand E-commerce Reach: Strengthen the presence on high-performing platforms.
 
 ### Improve Low-Performing Categories
 Investigate reasons for underperformance and adapt strategies to boost sales.
+
+![vrinda store Dashboard](https://github.com/user-attachments/assets/404282b0-8aef-4c23-9681-bf0fd71266fe)
